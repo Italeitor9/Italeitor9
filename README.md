@@ -1,7 +1,5 @@
 - 👋 Hi, I’m @Italeitor9
-- 👀 I’m interested in CHUPAR PICOOOO
-- 🌱 I’m currently learning CHUPAR PICOOOO
-- 💞️ I’m looking to collaborate on BearsPvP
+- 💞️ I’m looking to collaborate on DevilMC
 - 📫 How to reach me ...
 
 <!---
